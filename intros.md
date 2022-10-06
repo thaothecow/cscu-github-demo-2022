@@ -3,3 +3,4 @@
 - Bonejaw my name is Cindai! I like mangoes. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
 
+# my name is ahmad and I am new to github (except for when I download files because I've been doing that for a while)
