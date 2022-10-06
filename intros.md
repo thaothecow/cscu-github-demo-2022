@@ -3,3 +3,5 @@
 - Bonejaw my name is Cindai! I like mangoes. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
 
+-Hello my name is sheel patel, i like anime and playing video games. As for top anime 1. One Piece 2. Violet evergarden 3.Mob and as for video game valorant. ig -> sheel_52
+
