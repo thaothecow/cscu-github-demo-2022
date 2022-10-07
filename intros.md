@@ -15,3 +15,4 @@
 - Hi my name is Richard I am drinking juice right now :3
 Hai! I'm Lavanya and im in my 2nd year. Add me on insta; lavanya.c2 :)
 
+Hi, my name is Jordan. I like ravioli.
