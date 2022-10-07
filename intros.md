@@ -47,7 +47,7 @@
 Hai! I'm Lavanya and im in my 2nd year. Add me on insta; lavanya.c2 :)
 - Hi! My name is Mikayla, I'm a first year CS student. Death of a Phone Call has been playing in my head non-stop for three days 
 Hi, my name is Jordan. I like ravioli.
-
+- I'm Ario, I'm in first year CS and currently applying to hundreds of places in hopes of an internship. I code a bit too much ;O
 - Hi im Theebika and i love horror movies!
 
 - Hello, my name is Karishvan. I am a first year student @karishvan
