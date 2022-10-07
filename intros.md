@@ -9,3 +9,4 @@
 - Hello my name is Param! I'm in 1st year CS and I love sports especially basketball. My instagram is prm_sngh.
 - Hello my name is Peter
 
+Hai! I'm Lavanya and im in my 2nd year. Add me on insta; lavanya.c2 :)
