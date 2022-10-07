@@ -1,5 +1,8 @@
 # Introduce yourself 
 ### Please introduce yourself with your name and some facts about you
+- my name is Sharad! I like to play Volleyball. 
+- my social is @shashvatam
+- Hello everyone
 - Bonejaw my name is Cindai! I like mangoes. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
 - Hello, my name is Vincent 👋 @vincent_bercze
@@ -27,3 +30,4 @@ Hi, my name is Jordan. I like ravioli.
 - Hi im Theebika and i love horror movies!
 
 - Hello, my name is Karishvan. I am a first year student @karishvan
+
