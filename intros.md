@@ -2,6 +2,7 @@
 ### Please introduce yourself with your name and some facts about you
 - Bonejaw my name is Cindai! I like oranges. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
+- Hi my name is William and I like long walks in nature and the city.
 - Hi, my name is Mo! I'm in 2nd year CS. I really like music.
 - my name is Sharad! I like to play Volleyball. 
 - my social is @shashvatam
