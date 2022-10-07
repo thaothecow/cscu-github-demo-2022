@@ -59,3 +59,10 @@ My name is Thang Nguyen and a first year student studying CS at Toronto MU and r
 -Hello my name is sheel patel, i like anime and playing video games. As for top anime 1. One Piece 2. Violet evergarden 3.Mob and as for video game valorant. ig -> sheel_52
 
 Favorite artist is Post Malone and enjoying participating in hackathon.
+# Introduction
+- Name:Tao Wang
+- LinkedIn:https://www.linkedin.com/in/tao-wang-3b415724b/
+- Fun facts:
+  - I only have ear piercing on left ear.
+  - I do not know how to use LinkedIn, but I put it there anyway bcz I want connections.
+ -Ins:xavierrwong
