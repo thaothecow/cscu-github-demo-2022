@@ -9,6 +9,8 @@
 - Bonejaw my name is Cindai! I like mangoes. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
+- Hey, the name is Sualeh. Glad to see you here. ig: @_sindaco
+- 
 - Hey my name is Christopher but you can call me Chris. I'm a first year CS student who likes gaming and coding. 
 - Hey I'm Pias, I'm a 3rd year GCM student and hardstuck plat in valorant :) did a year and a half of electrical engineering before GCM and i wanna get back into programming so im here! follow me on ig @pias_fr 
 - Hey! It's Dibbyo, a third year co-op CS student. You can find me at dibbyo.saha on IG. Feel free to connect!
