@@ -5,6 +5,7 @@
 - Hello everyone
 - Bonejaw my name is Cindai! I like mangoes. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
+- Hi Im Winson. I like to eat and sleep. ig: @winson.ng03
 - Hey all! I'm George and I like music, coding, and biking.
 - Hi im Kai im a 2nd year student. I enjoy cat memes and music. Add me on Ig kkadamz and say hi 
 - Hello my name is Kesha! I'm in the 2nd year of Computer Science Coop Program!
