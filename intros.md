@@ -28,7 +28,7 @@
 - Hello my name is Peter
 - Hi my name is Richard I am drinking juice right now :3
 Hai! I'm Lavanya and im in my 2nd year. Add me on insta; lavanya.c2 :)
-
+- Hi! My name is Mikayla, I'm a first year CS student. Death of a Phone Call has been playing in my head non-stop for three days 
 Hi, my name is Jordan. I like ravioli.
 
 - Hi im Theebika and i love horror movies!
