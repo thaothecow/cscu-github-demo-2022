@@ -2,6 +2,7 @@
 ### Please introduce yourself with your name and some facts about you
 - Bonejaw my name is Cindai! I like mangoes. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
+- Kumusta, ako si Justin, I am a second year CS Co-op student. I like playing the drums, guitar, and singing. I am a huge keshi simp.
 - hi im gurveer :) alive
 - Hello world! My name is Orlando. I am blind in one eye. 
 - hello my name is kirtan! i am in 2nd year cs. i like watching anime's and going out ... and i am single .. add me  insta - kirtanjayswal , snap : kirtanjaiswal67
@@ -16,3 +17,4 @@
 Hai! I'm Lavanya and im in my 2nd year. Add me on insta; lavanya.c2 :)
 
 Hi, my name is Jordan. I like ravioli.
+
