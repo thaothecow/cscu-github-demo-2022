@@ -6,13 +6,9 @@
 - my name is Sharad! I like to play Volleyball. 
 - my social is @shashvatam
 - Hello everyone
-- Bonejaw my name is Cindai! I like mangoes. 
-- Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :).
 - Hihi! I'm Eleanor! I'm currently losing it :). I like indie games, doodling, and terrorising the pianos in Kerr Hall. I'm an absolute menace, so feel free to say hi!
 - IG - nornerd99
 - Discord - CrescentMoon#5504 (Leafeon profile pic)
-- Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts
-- Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
 - Hey, the name is Sualeh. Glad to see you here. ig: @_sindaco
 - 
 - Hey my name is Christopher but you can call me Chris. I'm a first year CS student who likes gaming and coding. 
@@ -58,6 +54,7 @@ Hi, my name is Jordan. I like ravioli.
 My name is Thang Nguyen and a first year student studying CS at Toronto MU and ready to apply for my Coop.
 -Hello my name is sheel patel, i like anime and playing video games. As for top anime 1. One Piece 2. Violet evergarden 3.Mob and as for video game valorant. ig -> sheel_52
 
+- Hi, my name is Hameedah and I'm a 3rd year CS student. My hobbies are sleeping and watching tik tok, I read sometimes too! My insta is @meeda.a ❤
 - My name is Ayan, i like coding
 Favorite artist is Post Malone and enjoying participating in hackathon.
 # Introduction
