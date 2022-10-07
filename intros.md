@@ -5,6 +5,7 @@
 - Hello everyone
 - Bonejaw my name is Cindai! I like mangoes. 
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
+- Hello my name is Kesha! I'm in the 2nd year of Computer Science Coop Program!
 - Hi, my name is Vinajan! I'm in 2nd year CS and I love to play Ultimate Frisbee but unfortunately I didn't make it to the team so I would try to work harder next time for next year tryouts. My instagram: @ultimate_greninja179
 -hii my name is maheen, im a first year in CS and i love cats <3
 - my insta is @maheenisnotreal
