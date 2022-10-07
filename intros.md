@@ -8,5 +8,5 @@
 - Hi my name is Jana and I like mangoes a lot too! :D
 - Hello my name is Param! I'm in 1st year CS and I love sports especially basketball. My instagram is prm_sngh.
 - Hello my name is Peter
-
+- Hi my name is Richard I am drinking juice right now :3
 Hai! I'm Lavanya and im in my 2nd year. Add me on insta; lavanya.c2 :)
