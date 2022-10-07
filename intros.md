@@ -18,3 +18,5 @@ Hai! I'm Lavanya and im in my 2nd year. Add me on insta; lavanya.c2 :)
 
 Hi, my name is Jordan. I like ravioli.
 
+- Hi im Theebika and i love horror movies!
+
