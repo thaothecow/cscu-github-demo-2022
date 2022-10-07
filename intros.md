@@ -7,6 +7,10 @@
 - my social is @shashvatam
 - Hello everyone
 - Bonejaw my name is Cindai! I like mangoes. 
+- Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :).
+- Hihi! I'm Eleanor! I'm currently losing it :). I like indie games, doodling, and terrorising the pianos in Kerr Hall. I'm an absolute menace, so feel free to say hi!
+- IG - nornerd99
+- Discord - CrescentMoon#5504 (Leafeon profile pic)
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts
 - Hello my name is Thao! I'm in 3rd year CS and I'm currently on a co-op term. My favourite fruit is coconuts :) .
 - Hey, the name is Sualeh. Glad to see you here. ig: @_sindaco
